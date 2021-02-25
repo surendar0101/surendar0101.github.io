@@ -1,2 +1,2 @@
 # surendar0101.github.io
-My Profile
+My Profile and details
